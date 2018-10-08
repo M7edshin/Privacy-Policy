@@ -56,7 +56,7 @@ These Services do not address anyone under the age of 13. I do not knowingly col
 
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
-## Contact Us
+## Contact me
 
 If you have any questions or suggestions about my Terms and Conditions, do not hesitate to contact me By email: M7edShin@gmail.com.
 
@@ -82,6 +82,6 @@ At some point, we may wish to update the app. The app is currently available on 
 
 I may update our Terms and Conditions from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Terms and Conditions on this page. These changes are effective immediately after they are posted on this page.
 
-## ontact Us
+## Contact me
 
 If you have any questions or suggestions about my Terms and Conditions, do not hesitate to contact me By email: M7edShin@gmail.com.
